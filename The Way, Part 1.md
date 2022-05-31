@@ -189,7 +189,8 @@ I've said some so much, and what I've said to you so far, I feel like cutting it
 **Audience:**  
 Question about what the second week was, we covered the first, third and fourth. I was to hear that we just the fifth week dinner. There were several things you talked about. One of the weeks I was gone in the world, I was, I went to California. (Not clear)
 
-**Lester:** Were you there when we decided to release directly on the fear of dying?
+**Lester:**  
+Were you there when we decided to release directly on the fear of dying?
 
 **Audience:**  
 Yeah, I was…… (Not clear)
@@ -210,7 +211,7 @@ That was it.
 **Audience:**  
 (Laugh) I didn't do the one that asked the question didn't go up.
 
-**Lester:** 
+**Lester:**  
 Answered it so well, I told the guy, when you make the decision to go free, it comes rapidly.
 
 **Audience:**  
